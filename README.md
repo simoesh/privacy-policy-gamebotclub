@@ -1,1 +1,1 @@
-[Terms of Service](https://prequelbots.com/home/#terms) and [Privacy Policy](https://prequelbots.com/home/#privacy) for [PrequelBots.com](https://prequelbots.com)
+[Terms of Service](https://gamebot.club/home/#terms) and [Privacy Policy](https://gamebot.club/home/#privacy) for [GameBot.club](https://gamebot.club/)
